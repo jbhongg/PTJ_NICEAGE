@@ -33,7 +33,7 @@
 
 ## :clapper: 프로젝트 UCC 영상
 
-링크 첨부예정
+https://www.youtube.com/watch?v=vORdGisfR64
 
 
 
